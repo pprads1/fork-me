@@ -26,7 +26,7 @@ Anne McCormack
 
 Zahira Perez
 
-Paula	Prada
+Paula	Prada- I was born and raised in Costa Rica and I am currently a student in Babson College. 
 
 Waseem Shabout
 
